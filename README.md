@@ -1,0 +1,1 @@
+# gogumajoa.github.io
